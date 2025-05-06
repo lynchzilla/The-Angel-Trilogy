@@ -1,0 +1,1 @@
+The Angel Trilogy is three novels describing the exploits of a genius woman living in 2060 Chicago, where global warming and the rise of giga corporations have given rise to fentanyl-infused drug dependency amongst the lower and middle classes.
